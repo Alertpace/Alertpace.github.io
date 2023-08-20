@@ -1,1 +1,1 @@
-# The pics was made by itsShaurya(ad4239)
+# The pics was made by Alertpace and itsShaurya(ad4239)
